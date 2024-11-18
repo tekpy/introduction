@@ -1,3 +1,3 @@
 # introduction
 
-Our impeccable reputation is the result of blockchain market awareness and partnership, we create innovative solutions for ourselves and our partners
+Наша безупречная репутация – результат осведомленности о рынке блокчейна и партнерства, мы создаем инновационные решения для себя и наших партнеров.
